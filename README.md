@@ -95,7 +95,7 @@
 <h1 align="left"> As a Cloud & DevOps Engineer  </h1>
 
 
-![image](https://github.com/user-attachments/assets/e3beeb3a-051e-4ef0-8b2d-49db4ff6018b)
+![68747470733a2f2f73696d706c65636f64696e672e6465762f6173736574732f6465766f70732e676966](https://github.com/user-attachments/assets/014c1f4e-f10b-476a-9821-d113a4d7dafe)
 
 
 ###
