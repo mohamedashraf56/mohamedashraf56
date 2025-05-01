@@ -1,6 +1,6 @@
-<img align="left" height=""  />
+<img align="left" height="![Uploading image.png…]()"  />
 
-![Uploading WhatsApp Image 2025-02-05 at 15.22.21_a5edbf30.jpg…]()
+
 
 
 <h3 align="center">How to reach me </h3>
