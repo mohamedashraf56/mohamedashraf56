@@ -1,5 +1,6 @@
-<img align="left" height="250" src="![IMG_20231213_210739_848](https://github.com/user-attachments/assets/4de9f3fc-418d-469d-b60a-fdc2452ff797)"  />
+<img align="left" height=""  />
 
+![Uploading WhatsApp Image 2025-02-05 at 15.22.21_a5edbf30.jpg…]()
 
 
 <h3 align="center">How to reach me </h3>
